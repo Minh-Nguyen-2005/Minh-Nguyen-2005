@@ -6,6 +6,8 @@
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: my bday is new year's eve
 
+  ✨ xoxo ✨
+
 <!---
 Minh-Nguyen-2005/Minh-Nguyen-2005 is a ✨ special ✨ repository
 --->
