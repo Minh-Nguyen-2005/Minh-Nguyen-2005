@@ -1,9 +1,9 @@
 - 👋 Hi, I’m Minh Nguyen
 - 👀 I’m LGBTQ+ in STEM
-- 🌱 I’m currently learning CS & Econ
-- 💞️ I’m looking to collaborate on any Fintech projects.
+- 🌱 I’m currently learning CS & Math Finance
+- 💞️ I’m looking to collaborate on any Fintech/Data projects.
 - 📫 How to reach me: minh.t.nguyen.27@dartmouth.edu or (603) 266-7337
-- 😄 Pronouns: he/him
+- 😄 Pronouns: he/they
 - ⚡ Fun fact: my bday is new year's eve
 
   ✨ xoxo ✨
